@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on Mobile Legends App
 - 📫 How to reach me? Follow me in Email @refamonteremon@gmail
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: We can team up and play to Mythical Immortals
+- ⚡ Fun fact: Join now in MLBB you can download it in PlayStore or AppleStore
 
 <!---
 anoooopalag/anoooopalag is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
